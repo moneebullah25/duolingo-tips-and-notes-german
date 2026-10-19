@@ -1,4 +1,4 @@
-﻿# Duolingo · Tips and Notes @ duome.eu
+# Duolingo · Tips and Notes @ duome.eu
 #### Basics 1 #4 · 2022-03-25[](https://www.duolingo.com/skill/de/Basics-1/practice) ^
 
 ### Welcome to German :)
